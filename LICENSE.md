@@ -1,4 +1,4 @@
-#  
+#  custom Scripts for easter tap simulator offers the most advanced easter tap simulator Script, with custom skins and auto-heal. Perfect for dominating
 
 
 
